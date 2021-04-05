@@ -1,1 +1,1 @@
-#### Only super-efforts give super results... )))
+#### Only super-efforts bring super results... )))
